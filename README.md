@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning phyton and how to be a great manager
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me baranozdemirofficial@gmail.com
-- 😄 Pronouns: Him, cause I am Him.
+- 😄 Pronouns: He, Him
 - ⚡ Fun fact: ...
 
 <!---
